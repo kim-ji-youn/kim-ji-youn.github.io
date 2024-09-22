@@ -1,2 +1,2 @@
 # kim-ji-youn.github.io
-Portfolio of Jiyoun Jess Kim
+Jiyoun Jess Kim
